@@ -26,5 +26,5 @@ Minha vida pessoal e profissional são guiadas pelos princípios de Deus, prezo 
 <br>
  <div align="center">
     <a href="https://www.instagram.com/juu.cardoso._" target="_blank"><img src="https://img.shields.io/badge/-Instagram-%23E4405F?style=for-the-badge&logo=instagram&logoColor=white" width = "180" target="_blank"></a>
-   
+    <div/>
 🙏 Que Deus abençoe você e sua jornada!
