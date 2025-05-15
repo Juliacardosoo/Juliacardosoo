@@ -1,4 +1,4 @@
-Oii, Sereia dos negócios e dos mares.
+ 🧜‍♀️✨ Oii, Sereia dos negócios e dos mares.
 
 Meu nome e Julia, empreendedora apaixonada pelo que faço e guiada pela fé. Sou dona de uma distribuidora de pescados, levando o melhor do mar até a sua mesa com excelência, responsabilidade e compromisso com a qualidade. 🐟🌊
 
