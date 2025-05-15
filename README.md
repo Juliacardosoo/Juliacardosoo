@@ -1,16 +1,24 @@
-## Hi there 👋
+# 🙌 Olá, seja bem-vindo(a)!
 
-<!--
-**Juliacardosoo/Juliacardosoo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome e Julia, empreendedora apaixonada pelo que faço e guiada pela fé. Sou dona de uma distribuidora de pescados, levando o melhor do mar até a sua mesa com excelência, responsabilidade e compromisso com a qualidade. 🐟🌊
 
-Here are some ideas to get you started:
+Sobre mim
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Sou uma mulher que cultiva os planos de Deus na vida do proximo, gosto muito de estar com minha familia, minha comida preferida e batata frita, sou uma pessoa muito estressada, porem muito companheira. 
+Minha vida pessoal e profissional são guiadas pelos princípios de Deus, prezo sempre por estar com Ele em cada momento da minha vida.
+
+ 💼 O que eu faço ?
+
+- 📦 Gestão da BLACK FISH PESCADOS LTDA, distribuidora de pescados com atuação em Sao Paulo.
+- 📊 Organização de pedidos, logística e relacionamento com clientes e fornecedores.
+  
+
+![art-348_256](https://github.com/user-attachments/assets/e8141f9c-6563-4ec1-a89e-07371a7d7431)
+
+🤝 Vamos nos conectar?
+
+- 📧 E-mail: @blackfishpescadosltda@gmail.com
+- 📱 Instagram: @juu.cardoso._
+- 🐟 Instagram da distribuidora : @blackfishltda
+
+🙏 Que Deus abençoe você e sua jornada!
